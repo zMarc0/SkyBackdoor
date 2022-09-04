@@ -1,5 +1,5 @@
 # SkyBackdoor
 
-La versión Lekeada de SkyBackDoor Sin codigo OBF, Creador: Marc. Si tienes alguna duda puedes mandarme MD a mi discord: 
+SkyBackDoor 100% Clean, Cualquier duda Mandarme MD ! Prx New_zMarc#1405
 
-! Prx New_zMarc#1405
+
